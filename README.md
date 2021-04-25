@@ -1,10 +1,5 @@
 ### Hi there! I am Jen Beatrix D. Maristela 👋 
 
-<!--
-**jenbeatrix/jenbeatrix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
-
 - 💬 Course: Bachelor of Science in Electronics Engineering (Currently a fresh graduate)
 - 🔭 I’m currently studying and practicing my skills ... LOaDinG ... LOaDinG ...
 - 🌱 I’m currently learning to improve my coding skills and explore other programming languages. 😄
