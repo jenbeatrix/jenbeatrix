@@ -1,4 +1,4 @@
-### Hi there! I am Jen Beatrix Maristela 👋 
+### Hi there! I am Jen Beatrix! 👋 
 
 - 💬 Course: Bachelor of Science in Electronics Engineering (Currently a fresh graduate)
 - 🔭 I’m currently practicing to improve my skills ... LOaDinG ... LOaDinG ...
