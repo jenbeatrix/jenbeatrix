@@ -1,7 +1,7 @@
 ### Hi there! I am Jen Beatrix D. Maristela 👋 
 
 - 💬 Course: Bachelor of Science in Electronics Engineering (Currently a fresh graduate)
-- 🔭 I’m currently studying and practicing my skills ... LOaDinG ... LOaDinG ...
+- 🔭 I’m currently practicing to improve my skills ... LOaDinG ... LOaDinG ...
 - 🌱 I’m currently learning to improve my coding skills and explore other programming languages. 😄
 - 🤔 I’m currently studying for the board exam ... ZZzzzzz
 - 📫 How to reach me: jbdmaristela@gmail.com
