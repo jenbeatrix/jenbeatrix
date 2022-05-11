@@ -1,11 +1,10 @@
-### Hi there! I am Jen Beatrix! 👋 
+### Hi there! I am Jen Beatrix! 👋 I'm a Licensed Electronics Engineer and a Licensed Electronics Technician!
 
-- 💬 Course: Bachelor of Science in Electronics Engineering (Currently a fresh graduate)
-- 🔭 I’m currently practicing to improve my skills ... LOaDinG ... LOaDinG ...
-- 🌱 I’m currently learning to improve my coding skills and explore other programming languages. 😄
-- 🤔 I’m currently studying for the board exam ... ZZzzzzz
+- 💬 Course: Bachelor of Science in Electronics Engineering 
+- 🔭 I’m still practicing to improve my skills ... LOaDinG ... LOaDinG ...
+- 🌱 I’m still learning to improve my coding skills and explore other programming languages. 😄
 - 📫 How to reach me: jbdmaristela@gmail.com
-- ⚡ Fun fact: I love watching anime and I am currently watching Formula One on Netflix. I used to dream that I wanted to become a racer someday 😄
+- ⚡ Fun fact: I love watching anime and I just became a Formula One Fan. I stan drivers who relies on their skills and talent in driving like Kevin Magnussen 😄
 -->
 
 "Embrace Your Dreams and Protect Your Honor as Soldier." - Zack Fair, FFVII Crisis Core
