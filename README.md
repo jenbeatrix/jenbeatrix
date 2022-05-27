@@ -1,4 +1,4 @@
-### Hi there! I am Jen Beatrix! 👋 I'm a Licensed Electronics Engineer and a Licensed Electronics Technician!
+### Hi there! I am Jen Beatrix! 👋 I'm a Newly Licensed Electronics Engineer and a Licensed Electronics Technician!
 
 - 💬 Course: Bachelor of Science in Electronics Engineering 
 - 🔭 I’m still practicing to improve my skills ... LOaDinG ... LOaDinG ...
