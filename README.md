@@ -1,4 +1,4 @@
-### Hi there! I am Jen Beatrix! 👋 I'm a Newly Licensed Electronics Engineer and a Licensed Electronics Technician!
+### Hi there! I am Jen Beatrix! 👋 I'm a Licensed Electronics Engineer and a Licensed Electronics Technician!
 
 - 💬 Course: Bachelor of Science in Electronics Engineering 
 - 🔭 I’m still practicing to improve my skills ... LOaDinG ... LOaDinG ...
@@ -6,6 +6,8 @@
 - 📫 How to reach me: jbdmaristela@gmail.com
 - ⚡ Fun fact: I love watching anime and I just became a Formula One Fan. I stan drivers who relies on their skills and talent in driving like Kevin Magnussen 😄
 -->
+
+Update: I am currently working as an Electronics Engineer assigned in the Auxiliary Systems (CCTV, FDAS, PABGM, NCS, ACS & DVWAP)
 
 "Embrace Your Dreams and Protect Your Honor as Soldier." - Zack Fair, FFVII Crisis Core
 
