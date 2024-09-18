@@ -4,7 +4,7 @@
 - 🔭 I’m still practicing to improve my skills ... LOaDinG ... LOaDinG ...
 - 🌱 I’m still learning to improve my coding skills and explore other programming languages. 😄
 - 📫 How to reach me: jbdmaristela@gmail.com
-- ⚡ Fun fact: I love watching anime and I just became a Formula One Fan. I stan drivers who relies on their skills and talent in driving like Kevin Magnussen 😄
+- ⚡ Fun fact: I love Raccoons!!!
 -->
 
 Update: I am currently working as an Electronics Engineer assigned in the Auxiliary Systems (CCTV, FDAS, PABGM, NCS, ACS & DVWAP)
